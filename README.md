@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @XxHikuraxX
+- 👀 I’m interested in HTML
+- 🌱 I’m currently learning HTML
+- 📫 How to reach me: YOu can always reach me per discord.
